@@ -1,22 +1,15 @@
-[![Tumblr-l-741628313920203.png](https://i.postimg.cc/Cxv8Kykr/Tumblr-l-741628313920203.png)](https://postimg.cc/cvnCDbDf)
+[![image.png](https://i.postimg.cc/fLkkRmT7/image.png)](https://postimg.cc/ZBtJf9N0)
 
 
 
-        89% 　ꪒ⑅݂ꪒ 　Tú,  mi  complemento 　⟡ 　mi  media  naranja  !!
-[![1785631984513.png](https://i.postimg.cc/yW4PnMvy/1785631984513.png)](https://postimg.cc/n92BhP8X)
+         89% 　ꪒ⑅݂ꪒ 　This  life  is  amazing 　⟡ 　when  you  greet  it  with  open  arms  !!
+[![175-sin-titulo-20261009171229.png](https://i.postimg.cc/63GGtg0J/175-sin-titulo-20261009171229.png)](https://postimg.cc/34YwZLVn)
 
-        70%  ˃ 𖥦 ˂   Chris ·  Alan  ! they/them   .  ENFP  !  · 13yr  ′  Omnisexual *  Non-binary
-
-
-        21 oct  ·  Autistic  . ESP/ENG  !  PLEASE doubles DNI
-
-   [![my-partner.png](https://i.postimg.cc/kg9rgzqZ/my-partner.png)](https://postimg.cc/vcP2PP1L)
-   [![non-sharing.png](https://i.postimg.cc/KYqCQYL9/non-sharing.png)](https://postimg.cc/t16r4pBP)
-   [![mi-otra-mitad-3.gif](https://i.postimg.cc/J7c5W266/mi-otra-mitad-3.gif)](https://postimg.cc/7bh23my0)
-        “   See what you created. I yearn to see you one last time.  ”
+        70%  ˃ 𖥦 ˂   Andrew ·  Aly  ! She/they   .  ENFP  !  · 13yr  ′  Omnisexual *  Non-binary
 
 
-[![partner-s-flower.gif](https://i.postimg.cc/QM9FxFXd/partner-s-flower.gif)](https://postimg.cc/Z9mbwKBG)
-[Pinterest](https://pin.it/d5y2eb1Pi)
+        21 oct  ·  I LOVE MY HANDSOME BF!! . ESP/ENG  !  PLEASE doubles DNI ( Appreciate it )
 
-[![Tumblr-l-741628313920203.png](https://i.postimg.cc/Cxv8Kykr/Tumblr-l-741628313920203.png)](https://postimg.cc/cvnCDbDf)
+  ෆ [Pinterest](https://pin.it/d5y2eb1Pi)
+ 
+  [![174-sin-titulo-20261009165606.png](https://i.postimg.cc/ryxtb6sP/174-sin-titulo-20261009165606.png)](https://postimg.cc/BtZ6LVxT)
